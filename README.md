@@ -2,4 +2,4 @@ sou o gustavo novak e essa e minha conta para a materia de pensamento computacio
 
 ![horse-kick](https://github.com/user-attachments/assets/51ee3d29-1cbf-42de-81aa-dd4957aa31fd)
 
-! [CESF](https://www.facebook.com/groups/cesfcampolargo/)
+! [aqui eu dou a bunda](https://www.facebook.com/groups/cesfcampolargo/)
