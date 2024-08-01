@@ -2,4 +2,7 @@ sou o gustavo novak e essa e minha conta para a materia de pensamento computacio
 
 ![horse-kick](https://github.com/user-attachments/assets/51ee3d29-1cbf-42de-81aa-dd4957aa31fd)
 
-! [aqui eu dou a bunda](https://www.facebook.com/groups/cesfcampolargo/)
+! [aqui e o colegio onde eu estudo](https://www.facebook.com/groups/cesfcampolargo/)
+
+_Tenho 14 anos_
+_sou bagual e sou roleiro_
