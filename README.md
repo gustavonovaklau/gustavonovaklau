@@ -5,4 +5,5 @@ sou o gustavo novak e essa e minha conta para a materia de pensamento computacio
 ! [aqui e o colegio onde eu estudo](https://www.facebook.com/groups/cesfcampolargo/)
 
 _Tenho 14 anos_
-_sou bagual e sou roleiro_
+_sou roleiro_
+_CHAMA NOS BRIC_
